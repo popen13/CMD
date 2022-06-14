@@ -1,0 +1,2 @@
+# CMD
+Kendak kuti la
